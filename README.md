@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vladavanyann
+- 👋 Hi, I’m Vlad
 - 👀 I’m interested in Imagination
 - 🌱 I’m currently learning How to Imagine
 - 💞️ I’m looking to collaborate on ARTist
